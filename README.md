@@ -1,0 +1,6 @@
+# 1BM21AI093-OOPS
+![q 6](https://github.com/PratyushGG24/1BM21AI093-OOPS/assets/142788718/98dfad93-df97-44a9-910a-7d430d389b17)
+
+![Q7](https://github.com/PratyushGG24/1BM21AI093-OOPS/assets/142788718/9b773a22-2982-4c7c-b645-d301c2754309)
+
+![Q8](https://github.com/PratyushGG24/1BM21AI093-OOPS/assets/142788718/0a289111-681b-45e0-992b-5b816423746c)
